@@ -218,4 +218,4 @@ Locutus is offered as a complete free version, allowing you to enjoy all feature
 Unlock your entertainment potential today! Download Locutus now and dive into a world of free movies and TV series!
 
 ---
-**Last updated:** 2026-09-25 15:41:27 UTC
+**Last updated:** 2026-09-25 19:43:06 UTC
